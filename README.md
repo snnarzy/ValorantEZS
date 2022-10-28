@@ -1,34 +1,32 @@
 # ValorantEZS (https://discord.gg/uJt7s3fZvW)
 WELCOME TO DISCORD THE DISCORD - EZServer). 😀
-1 :
-• Anything disruptive to normal server usage is not tolerated. This includes spam, mic-spam, raiding, non-English chat, voice channel idling, impersonation, etc.
 
-2 — TREAT OTHERS WITH RESPECT
+1 — TREAT OTHERS WITH RESPECT
 • It is our goal to maintain an inclusive atmosphere.
 
-3 — NO NSFW CONTENT
+2 — NO NSFW CONTENT
 • NSFW or objectionable content of any kind is prohibited. If you are unsure whether something is NSFW. This includes user profiles.
 
-4 — NO ADVERTISING
+3 — NO ADVERTISING
 • Do not advertise external servers or communities/advertise the selling & purchasing of accounts, cheat software, or digital goods.
 
-5- Do not ping Officials or Community Influencers who are not currently active in chat.
+4- Do not ping Officials or Community Influencers who are not currently active in chat.
 • Suggestions for the server should be posted only on
 server-suggestions.
 
-6 :
+5 :
 • All content and messages on this server are to be in English. Avoid talking in other languages.
 
-7 :
+6 :
 • Interfering with staff’s duties by arguing, misinforming them or giving false evidence is forbidden.
 
-8 :
+7 :
 • If you do not have a role that allows you to post links or images then don't try to post links or images because the server bot will mute u. You will be warned.
 
-9 :
+8 :
 • Playing music, earrape, using soundboards, or purposefully making annoying noises in voice channels is not allowed.
 
-10 :
+9 :
 • Malicious use of alts to give yourself an unfair advantage, disrupt the server, or to avoid bans is forbidden.
 
 
