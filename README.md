@@ -41,4 +41,13 @@ discussions - discuss with others!😀
 
 Do not break these rules as you will be banned or kicked from the server. We take these rules serious.
 
-Make sure you read all the rules •verify-rules-info🧾
+Make sure you read all the rules •verify-rules-info🧾This is an English speaking community. Please refrain from using other languages so everyone can participate in conversations.
+::No harassment of other players. We are an inclusive community, any sort of hate speech or harassment is never allowed. All conversations should remain civil.
+::No inappropriate content. This includes, but is not limited to, illegal or adult content.
+::No sensitive topics. Talking about serious topics such as politics and religions is not appropriate for this community.
+::No advertisement or self-promotion. Refrain from advertisement, soliciting, or begging including in direct messages. 
+::Don’t be disruptive. Please do not spam, this includes pinging users unnecessarily. Use the appropriate channel and server.
+::Keep voice channels clean. Avoid using voice changers or blasting loud sounds / music. Do not quickly change voice channels to be disruptive.
+::No excessive flirting. This is not a dating server, please refrain from “edating” in public channels.
+::Don’t use inappropriate language. Remain respectful, do not circumvent our filters - they are there for a reason.
+::Moderators hold the final say. Listen to and respect the volunteers that keep this server running
