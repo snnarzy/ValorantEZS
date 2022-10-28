@@ -1,5 +1,5 @@
 # ValorantEZS (https://discord.gg/uJt7s3fZvW)
-WELCOME TO DISCORD THE DISCORD - EZServer). 😀
+WELCOME TO DISCORD THE DISCORD - EZServer) 😀
 
 1 — TREAT OTHERS WITH RESPECT
 • It is our goal to maintain an inclusive atmosphere.
